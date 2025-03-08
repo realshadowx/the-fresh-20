@@ -2,7 +2,7 @@
 
 Looking for unbeatable savings on The Fresh 20?
 
-With discounts up to 50% off, you can enjoy nutritious, easy-to-make meal plans for a fraction of the cost.
+With discounts up to **[50% off](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)**, you can enjoy nutritious, easy-to-make meal plans for a fraction of the cost.
 
 [![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdDOwpr21jtoxi01GM6EFnaz9jPbAoH8uxKql8r6sxj_n8B9vZnJg7egc_9zABZA5SdqItXLbLU8lojn_V6prXsIm42cJrCrWCxI9UjZ0Vb5hPh6OCswID5hlMjE64onJ10vCNsCg?key=2xNAIPRS8smNuthwRrXwfL-3)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
 
