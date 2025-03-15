@@ -1,4 +1,6 @@
-# The Fresh 20 Coupons 2025 | Get 50% Off Promo Code 🔥
+ # The Fresh 20 Coupons 2025 | Get 50% Off Promo Code 🔥
+
+Hello folks, Amir here.
 
 Looking for unbeatable savings on The Fresh 20?
 
