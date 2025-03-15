@@ -6,7 +6,7 @@ Looking for unbeatable savings on The Fresh 20?
 
 With discounts up to **[50% off](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)**, you can enjoy nutritious, easy-to-make meal plans for a fraction of the cost.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdDOwpr21jtoxi01GM6EFnaz9jPbAoH8uxKql8r6sxj_n8B9vZnJg7egc_9zABZA5SdqItXLbLU8lojn_V6prXsIm42cJrCrWCxI9UjZ0Vb5hPh6OCswID5hlMjE64onJ10vCNsCg?key=2xNAIPRS8smNuthwRrXwfL-3)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2cc4af7c-7576-4f18-9a91-55b724f3c74c)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
 
 ## Top The Fresh 20 Promo Codes for 2025
 
@@ -41,7 +41,7 @@ Details: If you’re looking for a longer commitment and want to enjoy meals for
 * Expiry Date: May 2025
 * How to Use: Use this code to activate a 7-day free trial and get 20% off your first paid subscription.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdDOwpr21jtoxi01GM6EFnaz9jPbAoH8uxKql8r6sxj_n8B9vZnJg7egc_9zABZA5SdqItXLbLU8lojn_V6prXsIm42cJrCrWCxI9UjZ0Vb5hPh6OCswID5hlMjE64onJ10vCNsCg?key=2xNAIPRS8smNuthwRrXwfL-3)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2cc4af7c-7576-4f18-9a91-55b724f3c74c)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
 
 Details: Not sure if The Fresh 20 is for you? Start with a free 7-day trial to test out the meal plans and recipes, then enjoy 20% off your first payment once the trial ends.
 
@@ -67,7 +67,7 @@ Once you’ve selected your plan, head to the checkout page. Look for the “Pro
 
 Make sure the discount has been applied to your order. After confirming, finalize your purchase and start enjoying fresh, healthy meals delivered straight to your inbox!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdDOwpr21jtoxi01GM6EFnaz9jPbAoH8uxKql8r6sxj_n8B9vZnJg7egc_9zABZA5SdqItXLbLU8lojn_V6prXsIm42cJrCrWCxI9UjZ0Vb5hPh6OCswID5hlMjE64onJ10vCNsCg?key=2xNAIPRS8smNuthwRrXwfL-3)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2cc4af7c-7576-4f18-9a91-55b724f3c74c)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
 
 ---
 
@@ -99,7 +99,7 @@ If you're ready to commit for a few months, the 6-month plan gives you a discoun
 
 The 12-month subscription is ideal for those who want to stick with healthy meal planning long-term. Save $28.80 in total when you apply the promo code!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdDOwpr21jtoxi01GM6EFnaz9jPbAoH8uxKql8r6sxj_n8B9vZnJg7egc_9zABZA5SdqItXLbLU8lojn_V6prXsIm42cJrCrWCxI9UjZ0Vb5hPh6OCswID5hlMjE64onJ10vCNsCg?key=2xNAIPRS8smNuthwRrXwfL-3)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2cc4af7c-7576-4f18-9a91-55b724f3c74c)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
 
 ---
 
@@ -116,7 +116,7 @@ The Fresh 20 is a meal planning service designed to make it easier for families 
 
 Whether you're a busy professional or a parent looking for healthy meal ideas, The Fresh 20 makes it simple to eat well without stress.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdDOwpr21jtoxi01GM6EFnaz9jPbAoH8uxKql8r6sxj_n8B9vZnJg7egc_9zABZA5SdqItXLbLU8lojn_V6prXsIm42cJrCrWCxI9UjZ0Vb5hPh6OCswID5hlMjE64onJ10vCNsCg?key=2xNAIPRS8smNuthwRrXwfL-3)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/2cc4af7c-7576-4f18-9a91-55b724f3c74c)](https://shop.thefresh20.com/annual-meal-plans-20-off?fpr=shadow)
 
 ---
 
